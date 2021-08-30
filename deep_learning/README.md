@@ -1,1 +1,0 @@
-deep learning is hard 🥲
